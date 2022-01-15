@@ -1,0 +1,1 @@
+# HW_Vadim_Ksendzov_QA_Course
